@@ -1,0 +1,24 @@
+kurasha1
+kurasha2
+kurasha3
+ mhamad122
+ 12345678
+ 87654321
+zxcvbnm
+mnbvcxz
+zzzzxxxx
+xxxxzzzz
+ccccxxxx
+xxxxcccc
+vvvvcccc
+ccccvvv
+vvvvbbbb
+bbbbvvvv
+nnnnbbbb
+ppppoooo
+llllkkkk
+njjjjsss
+hhhhhsss
+jssjhshb
+pppaaahd
+kiwpzbvs
